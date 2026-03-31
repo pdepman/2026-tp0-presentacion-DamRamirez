@@ -1,5 +1,5 @@
 # Presentación
-### Buenas! Me llamo Damián Ramirez, tengo 23 años.
+### Buenas! Me llamo Damián Ramirez, tengo 23 años, Legajo 2091574.
 ### Un poco sobre mi
 - Me gusta escuchar música, mi banda favorita es Linkin Park, aunque trato de abrir un poco la mente y escuchar un poco de todo (Hoy en día estoy escuchando más otras bandas como Foster the People o Twenty one pilots).
 - Siempre que puedo trato de hacer deporte, ya sea correr o ir al gimnasio o practicar algo en general. Soy hincha de Boca (Traigan un técnico serio porfa) e intento, dentro de lo posible, ver los partidos aunque eso signifique sacrificar un poco de mi salud mental.
