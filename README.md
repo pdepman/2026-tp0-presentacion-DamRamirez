@@ -8,3 +8,14 @@
 ___
 - La siguiente foto es del último halloween, el cual me disfrace de vaquero!
 ![Texto alternativo](https://github.com/pdepman/2026-tp0-presentacion-DamRamirez/blob/main/WhatsApp%20Image%202026-04-03%20at%2012.42.28.jpeg)
+
+
+# Respondiendo issues
+### Siguiendo un poco lo que me pide el público (wee) agrego unas secciones más.
+#### Datitos de color
+- Entreno 2 veces por semana voley en un club que fundamos con unos compañeros (como otro dato de color, deje el futbol por eso)
+- Trato de hacer todo lo que puedo con música sumergido en mi mundo.
+- Arranque un trabajo nuevo hace unas semanitas el cual me gusta mucho (part-time gracias a deus).
+- Por la emigración de mi hermana, tengo la suerte de poder experimentar el vivir solo.
+- Lo referido a la carrera, arranque en 2022 pero por un tema familiar tuve que abandonar, retomando en 2024 mas seriamente y mas centrado, por lo que estaria cursando mi 3er año y actualmente cursando materias de 2do.
+- Como vi a algunos compañeros haciendolo, voy a publicar mi mapa de las materias.
