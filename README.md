@@ -19,4 +19,4 @@ ___
 - Por la emigración de mi hermana, tengo la suerte de poder experimentar el vivir solo.
 - Lo referido a la carrera, arranque en 2022 pero por un tema familiar tuve que abandonar, retomando en 2024 mas seriamente y mas centrado, por lo que estaria cursando mi 3er año y actualmente cursando materias de 2do.
 - Como vi a algunos compañeros haciendolo, voy a publicar mi mapa de las materias.
-![Texto alternativo](https://github.com/pdepman/2026-tp0-presentacion-DamRamirez/blob/main/follow%20carerra.jpg<)
+![Texto alternativo](https://github.com/pdepman/2026-tp0-presentacion-DamRamirez/blob/main/subjects-graph-frba-k23.png)
